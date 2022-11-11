@@ -1,2 +1,3 @@
 # luiz-felipe
-consciencia negra
+consciência negra:
+A consciência Negra é uma ideologia que enfatiza a consciência racial. Ela é amplamente creditada ao pan-africanista Marcus Garvey. A Consciência Negra é em grande parte crítica à opressão colonialista e à inferioridade africana. Ela também trata de questões de raça e civilização. A Consciência Negra e o Garveyism são mutuamente inclusivos, e o termo "Consciência Negra" é freqüentemente usado de forma intercambiável com o Garveyism. Entretanto, há algumas distinções importantes entre as duas filosofias. A Consciência Negra é mais do que apenas um movimento político; é também uma forma de olhar para o mundo e compreender as experiências únicas dos negros. É uma forma de celebrar a cultura negra e a própria negritude.  O garveyism, por outro lado, é principalmente um movimento político que se concentra no fortalecimento econômico e na auto-suficiência dos negros.
